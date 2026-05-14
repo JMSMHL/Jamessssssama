@@ -1,4 +1,4 @@
-# Ciallo～(∠・ω< )⌒★! It's me, JAMES!👋
+# It's me, JAMES!👋
 
 ![](https://github.com/halfrost/halfrost/blob/master/icons/header_1.png)
 <a href="https://peerlist.io/vinitshahdeo"><img src="https://github-readme-badge.peerlist.io/api/Jamessssssama"/></a>
